@@ -1,4 +1,3 @@
-# anikshar-ashvenk-fafaalha-a3
 
 ## Part 1
 
